@@ -1,2 +1,2 @@
 # 简约风格的主页
-![img](https://upload.cc/i1/2024/12/31/Ky1uzE.png)
+![image](https://img.xxxh.de/1735626194090.jpeg)
